@@ -1,0 +1,2 @@
+# shitcoin
+Shitcoin is a peer-to-peer crytocurrency to serve the community. With the tremendous growth of crypto market, hundreds of shit coins have been created. The goal of Shitcoin is to purge the market. Shitcoin depends on its community, the more members will join the community, the less other shit choins will have money. We want to centralize the money injected in current shitcoins in just one and unique shitcoin.
